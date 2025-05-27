@@ -1,0 +1,1 @@
+# FANUC-0i-MFquantaoshuomingshu10ben
